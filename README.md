@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @Mahroz
 - 👀 I’m interested in food, art, cake art, volleyball.
 - 🌱 I’m currently learning school bcs im forced 2.
-- 💞️ I’m looking to collaborate on no thanks.
+- 💞️ I’m looking to collaborate on.. uuhh ya no
 - 📫 How to reach me errmm stralker alert...
 - 😄 Pronouns: her she me i 
-- ⚡ Fun fact: I'm not a robott.
+- ⚡ Fun fact: I'm human ig
 
 <!---
 ml12203/ml12203 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
